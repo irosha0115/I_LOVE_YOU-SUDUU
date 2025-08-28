@@ -1,18 +1,17 @@
-# I_LOVE_YOU-SUDUU
-ADAREI MNIKEE
-adarei  suduuuu poddak tharaha giyata adarei harida?
+Ada mokada une clz gihin
+parissmata gihin awada
+thama gedrin cased 🥹
 
- idala hitala hari msg ekak danna mn balan inne msg ekak danakm ne
- oya msg ekk dmme nathi unama thamy tharaha yanne mata 
- 
- ah eda photo ekk illuwt psse ekai thiyenne kiyl
- 
- ekk dmme ita passe status wena ekk dala ethakota mata kohoma danenna athi kiyl hithuwd ?
- 
- ekta thmy mata wadipurama tharaha giye 
- 
- man paw nadd ahhhh dan owa amathaka karamuko
- 
- adarei hamadatama
- 
- ummmmmh 
+mama nm ude akkw dala awith
+aya nidgtta
+ita passe aharila et revision video ekak baluwa
+dawalt kala
+kamare as krl
+pc eke light tika galawuwa okkoma
+ita passe appachchige wada tikak thibba ekath kara
+akkwth ekkn awith
+dan nawe
+
+
+good night 
+budu saranai suduu 😘🥰
