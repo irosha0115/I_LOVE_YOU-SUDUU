@@ -1,18 +1,25 @@
-ah sudu none 
+kohomada ithin
 
-1.sapen sanipen innawada ?
+1. ada clz giyada ?
 
-2.mokada kiynne gedr aya dan 
-thama mawa mathak krnwd ?
+2.gedr aya mona kiyld baninne kiuwe nne 
+  ballekt wge baninwd
+  awulk na kiynnko ?
 
-3.massina ehema sanipen innwd ?
+3.heta parcel eka ganna bari wei
+  man kiuwa eyt thiynn puluwn thankin thiynn kiyl
 
-4.mawa mathak wenne ehema ndd madomt ?
+4.ah skole exam eke lakunu kohomd ?
 
-5.mokkd denna thiyenne ?
+5.kiynn mukuth nadd ?
 
-phone eka hambuna welwt me tikt uththr dennko 😘
+6.aluthen naduwk ehema watune nadd?
+
+7. banina widiha aniwren kiynn 
+  ethakota mata e waradi tika blgnn puluwn ne
+   ballekt wge bannth awulk na banina widiha kiynnko
 
 
-good night 
-budu saranai suduu 😘🥰
+adarei manike
+parissmin inna
+ummmmmmmh 😘
