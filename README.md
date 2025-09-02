@@ -1,4 +1,5 @@
-kohomada loku madom sanipen innawada ?
+kohomada
+ madom sanipen innawada ?
 
 gedr aya hodin innwada
 
