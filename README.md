@@ -1,25 +1,22 @@
-kohomada ithin
+kohomada loku madom sanipen innawada ?
 
-1. ada clz giyada ?
+gedr aya hodin innwada
 
-2.gedr aya mona kiyld baninne kiuwe nne 
-  ballekt wge baninwd
-  awulk na kiynnko ?
+dwsm clz giyt kmk na hodt nidgnna
+nttm oluwe kakkuma hadei
 
-3.heta parcel eka ganna bari wei
-  man kiuwa eyt thiynn puluwn thankin thiynn kiyl
+kanna welawata ( harid ) 😒
 
-4.ah skole exam eke lakunu kohomd ?
+welawa thibboth mona hari wadakuth karanna
+tikak mahansi wenna 
 
-5.kiynn mukuth nadd ?
+edath wada ganna gihin bari unane
+thawa bara wadi unoth bari wenw 😒
 
-6.aluthen naduwk ehema watune nadd?
+man kohoma hari wadagnnw oyw 🤭
 
-7. banina widiha aniwren kiynn 
-  ethakota mata e waradi tika blgnn puluwn ne
-   ballekt wge bannth awulk na banina widiha kiynnko
+wada tika krgnnko parissmin
 
+skole yanawnm kalin dwse kiynn mata 
 
-adarei manike
-parissmin inna
-ummmmmmmh 😘
+bye ehenm adarei manikee 😘❤️‍🔥
